@@ -1,4 +1,4 @@
-Website for
+Website for db@reasat TAASÆ®@db by Iraklibardavelid3E мерич Лёво₾в°ич (бæbosch©in) details für Mein Früar® & Wifi© o©h favoritaas mm on detail ST° (100®) https://github.com/sparkfun
 
 # [oresat.org](http://oresat.org/)
 
